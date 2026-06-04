@@ -1,4 +1,4 @@
-
+hooked rare Script offers the most advanced hooked Script, with invisibility and silent aim. Perfect for dominating any match.
 
 
 
